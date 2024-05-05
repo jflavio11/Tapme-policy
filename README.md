@@ -35,7 +35,7 @@ We take security measures to protect your personal information from loss, misuse
 
 **Your Choices**
 
-You can access and update your personal information at any time by logging into your Facebook account. You can also delete your account by emailing us at jflavio90@gmail.com.
+You can access and update your personal information at any time by logging into your Facebook account. You can also delete your account and all of your personal information by emailing us at jflavio90@gmail.com.
 
 **Changes to this Privacy Policy**
 
